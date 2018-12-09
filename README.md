@@ -7,3 +7,4 @@
 <a href="https://club.autohome.com.cn/bbs/forum-c-4524-1.html#pvareaid=2060112">Portofino论坛，每日6.18打卡</a>  
 <a href="https://club.autohome.com.cn/bbs/thread/ebdf05a0d542ee4c/77581790-1.html#pvareaid=102410">别人30的礼物——法拉利</a>  
 <a href="https://club.autohome.com.cn/bbs/thread/3db0f32f7f94ecff/73798189-1.html#pvareaid=102410">出国留学回家提488</a>
+<a href="https://club.autohome.com.cn/bbs/thread/182bdc3b3e7d0247/73599428-1.html#pvareaid=102410">以后看见跑车认真拍，高一小伙好还能加车主微信呢</a>  
