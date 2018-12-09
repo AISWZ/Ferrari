@@ -1,7 +1,8 @@
 # MyLoveMyHappy
 真正能让我快乐的——Portofino！和AI事业！LOL什么的都太次要了，只不过是失败时，骗自己的地方！  
 世界上只有两种跑车，法拉利和其他跑车！  
-<a href="https://carconfigurator.ferrari.com/en_EN/ferrari_car_configurator/portofino/step/summary?configuration=2d845d80c637f9f1cb3a60b39ab88ec1e86f48e20fc2760a6a320344baa03548">我配置的我的Portfino白色</a>
+<a href="https://carconfigurator.ferrari.com">定制你的法拉利</a>  
+<a href="https://carconfigurator.ferrari.com/en_EN/ferrari_car_configurator/portofino/step/summary?configuration=2d845d80c637f9f1cb3a60b39ab88ec1e86f48e20fc2760a6a320344baa03548">我的Portfino白色</a>  
 <a href="https://club.autohome.com.cn/bbs/thread/5e0fca404e670931/77973543-1.html#pvareaid=2060113">第一辆Portofino已提交作业，应该也是中国第一辆</a>  
 <a href="https://club.autohome.com.cn/bbs/thread/d49343b2a6236646/77510650-1.html#pvareaid=2341141">很真实的法拉利488提车贴，和我想法一样</a>  
 <a href="https://club.autohome.com.cn/bbs/thread/eee87f1e074090e5/72080060-1.html#pvareaid=102410">麦浪哥，我坐的那辆法拉利，同是90后</a>  
